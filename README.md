@@ -1,1 +1,0 @@
-# Sachdev-scratch-coupan
